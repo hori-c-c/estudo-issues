@@ -1,1 +1,1 @@
-Vou quebrar tudo
+Ja ta quebrado?
